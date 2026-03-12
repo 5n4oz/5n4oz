@@ -1,5 +1,3 @@
-<img width="1090" height="479" alt="image" src="https://github.com/user-attachments/assets/16c4d6c7-3f05-49ee-8caf-e76abca31d6a" /> 
-
 Hello! I'm Snap!
 --
 You probably know me from PT which... Hello! 
