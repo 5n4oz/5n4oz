@@ -4,25 +4,27 @@ You probably know me from PT which... Hello!
 
 He/Him pronouns preferred!
 
-I'm usually at Docks or the Lego Area!
+I'm usually at Docks orr... I'm on PI !
 
 BFYI
 --
-I AM very anxious, and may be more chatty w/ friends! (I am not very good at leading conversations..)
+I AM very anxious, and may be more chatty w/ friends! (I am getting better at that though !!)
 
 BUT I am especially chatty about what I'm interested in!
 
 INTERESTS
 --
-+ LMK (Basically any lego.. I love LEGO!!!)
++ Lego Monkie Kid (I love them all... big Wukong and Macaque Fan though..)
 
 + Lego Ninjago! (Cole & Garmadon are my FAVORITES..)
 
-+ Warriors (Love my wcocs :3 )
++ Warriors (Love my wcocs :3 but Bluestar and Tigerstar are my FAVS)
 
 + COD zombies (Primus + Ultimus storyline)
 
-+ Pokemon!! --> I like Yamper, Pikachu & Umbreon !! (Big electric type fan!)
++ Pokemon!! --> I like Yamper, Pikachu & Blipbug !! (Big electric type fan!)
+
++ Gensshin! (Mika and Qiqi are my FAVS.. i love building characters..)
 
 + Mythology
 
